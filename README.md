@@ -9,4 +9,4 @@
 
 - More about me: https://www.linkedin.com/in/karene-jessica-assistantevirtuellevirtualassistantrealestatehumanresourcesadministrativepersonal/
 
--   --> To the pleasure of exchanging and/or collaborating together <--
+-   --> To the pleasure of exchanging and/or collaborating together! <--
